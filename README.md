@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎉 I'm currently working on Pixel Paradise RP<br>🤔 Wondering what my next problem solving adventure will be<br>💻 Improving my LUA and programming knowledge
+🎉 I'm currently working on Improv RP<br>🤔 Wondering what my next problem solving adventure will be<br>💻 Improving my LUA and programming knowledge
 
 
 ## 🌐 Socials:
